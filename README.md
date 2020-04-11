@@ -1,4 +1,4 @@
-# drawings
+# Sketches
 
 I want to learn sketching and therefore will draw a sketch each day.
 
